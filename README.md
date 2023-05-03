@@ -1,6 +1,6 @@
 # 快播TV 最新地址发布 
 ## 导 航 永 久 域 名  Https://kkapp.tv
-## ⭐️ 👉 [国外线路](javascript:alert(1);) ：HttpS://hengnb.com/
+## ⭐️ 👉 [国外线路](javascript:alert(1)) ：HttpS://hengnb.com/
 ## ⭐️ 👉 国内线路 ：HttpS://p.ahjwys.xyz/
 ⭐️⭐️⭐️⭐️⭐️⭐️⭐️⭐️⭐️⭐️⭐️⭐️⭐️⭐️⭐️⭐️⭐️⭐️
 ## ‼️‼️长按复制到浏览器里面访问以上网址‼️  ‼️
